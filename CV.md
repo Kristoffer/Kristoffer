@@ -4,6 +4,6 @@ A CV Haiku:
 
 Change is Faster than Ever, and Will Never Again Be This Slow
 
-if Nothing is Here by Now, it Probably Never Will
+if Nothing is Here by Now, It Probably Never Will
 
-until then you can find me on [LinkedIn](https://linkedin.com/in/ultraslice)
+Until Then, You can find me on [LinkedIn](https://linkedin.com/in/ultraslice)
