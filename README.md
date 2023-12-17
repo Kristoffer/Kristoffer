@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on harmonious world domination at [gravityblasting](https://gravityblasting.com)
 - 🐎 Previously I worked at [Dygtig Hest](https://dygtighest.dk), [Bit Hotel](https://bithotel.net) and [IT OPERATIONS](https://itoperations.dk) - full resume [here](https://github.com/Kristoffer/Kristoffer/blob/main/CV.md)
-- 🌱 I’m currently learning about github actions and consequences
+- 🌱 I’m currently learning about github actions and living with the consequences
 - 👯 I’m looking to collaborate on important things in life
 - 🤔 I’m looking for help with realizing the potential of all things live
 - 💬 Ask me about: the meaning of anything
