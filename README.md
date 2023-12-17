@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with realizing the potential of all things live
 - 💬 Ask me about: the meaning of anything
 - 📫 How to reach me: https://youtube.com/@ondfar
-- 😄 Pronouns: `refuse`/`resist`
+- 😄 Pronouns: `whatever`/`whenever`
 - ⚡ Fun fact: I can row 2007m in 8:39 seconds on the machine currently 
