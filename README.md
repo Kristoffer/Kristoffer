@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on harmonious world domination at [Gravity Blasting](https://gravityblasting.com).
+- 🔭 I’m currently working on harmonious world domination at [Gravity Blasting](https://gravityblasting.com)
 - 🌱 I’m currently learning about github actions and consequences
 - 👯 I’m looking to collaborate on important things in life
 - 🤔 I’m looking for help with realizing the potential of all things live
