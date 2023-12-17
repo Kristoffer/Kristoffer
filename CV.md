@@ -1,8 +1,10 @@
 ### Kristoffer's CV 
 
-Change is Faster than Ever, but Will Never Again Be This Slow
+A CV Haiku :
 
-if nothing is Here by now, it probably never will
+Change is Faster than Ever, and Will Never Again Be This Slow
+
+if nothing is here by now, it probably never will
 
 until then you can find me on [LinkedIn](https://linkedin.com/in/ultraslice)
 
