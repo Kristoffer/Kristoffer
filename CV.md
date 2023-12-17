@@ -1,6 +1,6 @@
 ### Kristoffer's CV 
 
-My CV as a Haiku:
+A CV Haiku poem:
 
 Change is Faster than Ever, and Will Never Again Be This Slow
 
@@ -8,4 +8,4 @@ if nothing is here by now, it probably never will
 
 until then you can find me on [LinkedIn](https://linkedin.com/in/ultraslice)
 
- - Kristoffer
+ -- Kristoffer
