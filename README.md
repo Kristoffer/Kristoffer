@@ -5,7 +5,7 @@
 - 🌱 I’m always learning about actions and consequences
 - 👯 I’m looking to collaborate on important things in life
 - 💬 Ask me about: the meaning of anything
-- 🥁 You can find me: during the weekends as a sweaty mess with hard rock orchestra [The Interbeing](https://theinterbeing.com) or on [YouTube](https://www.youtube.com/user/THEINTERBEING)
+- 🥁 You can find me: during the weekends as a sweaty mess with hard rock band [The Interbeing](https://theinterbeing.com) or on [YouTube](https://www.youtube.com/user/THEINTERBEING)
 - ⚡ Proudly endorsed by [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk)
 - 📫 My youtube channel is: https://youtube.com/@ondfar 
 - ⚓️ Fun fact: I'm a Level 1 Snowboard instructor in Austria since 2005.
