@@ -7,6 +7,6 @@
 - 💬 Ask me about: the meaning of anything
 - 📫 You can find me here: https://youtube.com/@ondfar 
 - 🥁 You can also find me during the weekends with hard rock band [The Interbeing](https://theinterbeing.com) or on [YouTube](https://www.youtube.com/user/THEINTERBEING)
-- ⚡ Proudly endorsed by [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk)
-- ⚓️ Fun fact: I'm an Austrian Level 1 Snowboard instructor since 2005. Also, in 2001 I drove Bob Dylan's guitar amp in the back of a Toyota HiAce.
+- ⚡ Shoutouts to [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk) for providing me with new toys
+- ⚓️ Fun fact: In 2001 I drove Bob Dylan's guitar amp in the back of a Toyota HiAce. Also I'm an Austrian Level 1 Snowboard instructor since 2005.  
 - 🛶 I row 2007m in 8:39 seconds on the machine currently 
