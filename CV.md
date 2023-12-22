@@ -1,4 +1,4 @@
-### Kristoffer's CV 
+### Kristoffer's Resumè
 
 A CV Haiku:
 
