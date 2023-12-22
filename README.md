@@ -7,6 +7,7 @@
 - 🤔 I’m looking for help with realizing the potential of all things live
 - 💬 Ask me about the meaning of anything
 - 🥁 You can find me: during the weekends as a sweaty mess with hard rock orchestra [The Interbeing](https://theinterbeing.com) or on [YouTube](https://www.youtube.com/user/THEINTERBEING)
-- 📫 My youtube channel is: https://youtube.com/@ondfar 
 - ⚡ Proudly endorsed by [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk)
-- ⚓️ Fun fact: I row 2007m in 8:39 seconds on the machine currently 
+- 📫 My youtube channel is: https://youtube.com/@ondfar 
+- ⚓️ Fun fact: I'm a Level 1 Snowboard instructor in Austria since 2005.
+- 🛶 I row 2007m in 8:39 seconds on the machine currently 
