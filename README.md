@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on important things in life
 - 💬 Ask me about: the meaning of anything
 - 📫 You can find me here: https://youtube.com/@ondfar 
-- 🥁 You can also find me during the weekends with [The Interbeing](https://theinterbeing.com) or [YouTube](https://www.youtube.com/user/THEINTERBEING)
-- ⚡ Shoutouts to [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk) for providing me with new toys
+- 🥁 You can also find me during the weekends with [The Interbeing](https://theinterbeing.com) on [YouTube](https://www.youtube.com/user/THEINTERBEING)
+- ⚡ Shoutouts to [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk) for supplying my favorite toys
 - ⚓️ Fun fact: In 2001 I drove Bob Dylan's guitar amp in the back of a Toyota HiAce. Also I'm an Austrian Level 1 Snowboard instructor since 2005.  
 - 🛶 I row 2007m in 8:39 seconds on the machine currently 
