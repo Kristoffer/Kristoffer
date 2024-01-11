@@ -1,5 +1,3 @@
-### Kristoffer's Resumè
-
 A Haiku CV:
 
 Change is Faster than Ever, and Will Never Again Be This Slow
