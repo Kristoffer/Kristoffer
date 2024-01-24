@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working in the Platforms and Infrastructure Team at [JP/Politikens Hus](https://jppol.dk) 
-- 🐎 Previously I worked at [IT OPERATIONS](https://itoperations.dk), [gravityblasting](https://gravityblasting.com), [Bit Hotel](https://bithotel.net), [Dygtig Hest](https://dygtighest.dk) among [others](https://github.com/Kristoffer/Kristoffer/blob/main/CV.md) 
+- 🔭 I’m currently working in the Platforms and Infrastructure Team at [JP/Politikens Hus A/S](https://jppol.dk) 
+- 🐎 Previously I worked at [IT OPERATIONS](https://itoperations.dk), [gravityblasting](https://gravityblasting.com), [BitHotel](https://bithotel.net), [Dygtig Hest](https://dygtighest.dk) among [others](https://github.com/Kristoffer/Kristoffer/blob/main/CV.md) 
 - 🌱 I’m always learning about actions and consequences
 - 👯 I’m looking to collaborate on important things in life
 - 💬 Ask me about: the meaning of anything
