@@ -7,6 +7,6 @@
  - 💬 Ask me about: the meaning of anything
  - 📫 You can also find me here: https://youtube.com/@ondfar 
  - 🥁 Or here during the weekends: [The Interbeing](https://theinterbeing.com) and [YouTube](https://www.youtube.com/user/THEINTERBEING)
- - ⚡ Thank you [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk) for supplying such facinating toys
+ - ⚡ Thank you [Zildjian](https://zildjian.com), [Vater](https://www.vater.com) and [Porter and Davies](https://www.porteranddavies.co.uk) for supplying facinating toys
  - ⚓️ Fun fact: In 2001 I drove Bob Dylan's guitar amp in a Toyota HiAce. 
  - 🛶 I row 2007m in 8:39 seconds on the machine currently 
